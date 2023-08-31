@@ -1,1 +1,1 @@
-# Graphic-Design
+# Designs made with Adobe Photoshop
